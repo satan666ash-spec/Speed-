@@ -1,1 +1,1 @@
-# Speed-
+# Speedy typing
